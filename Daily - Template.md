@@ -1,6 +1,6 @@
 # 🌅 Morning 
 ----------
-## BOD Preparation
+## Beginning of Day Preparation
 
 - You are not alone.
 - Find inspiration and share it.
